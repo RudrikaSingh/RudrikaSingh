@@ -2,6 +2,6 @@
 - 👀 I’m interested in learning about new technologies and upskilling myself
 - 🌱 I’m a computer science and engineering student
 - 💞️ I’m looking to collaborate on ai and ml based projects
-- 📫 You can reach me through linkedin DM my linkedin profile url is: https://www.linkedin.com/in/rudrika-singh-5508b9257/
+- 📫 You can reach me through Linkedin DM: https://www.linkedin.com/in/rudrika-singh-5508b9257/
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love to study astronomy, read books, and a big fan of music
